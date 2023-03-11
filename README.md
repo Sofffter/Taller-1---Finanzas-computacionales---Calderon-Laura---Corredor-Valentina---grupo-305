@@ -1,1 +1,1 @@
-# Taller-1---Finanzas-computacionales---Calderon-Laura---Corredor-Valentina---grupo-305
+# Talleres---Finanzas-computacionales---Calderon-Laura---Corredor-Valentina---grupo-305
